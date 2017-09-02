@@ -1,0 +1,2 @@
+# strikeplagiarismpl
+GitHub Pages
